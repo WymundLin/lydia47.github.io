@@ -1,1 +1,1 @@
-## The storey of Lydia and Wymund
+## The story of Lydia and Wymund
